@@ -1,1 +1,2 @@
-# sh-akira.github.io
+# ‚ ‚«‚çworks
+[https://akira.works/](https://akira.works/)
