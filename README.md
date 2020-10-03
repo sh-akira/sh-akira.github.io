@@ -1,2 +1,2 @@
-# ‚ ‚«‚çworks
+# ã‚ãã‚‰works
 [https://akira.works/](https://akira.works/)
